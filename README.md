@@ -1,6 +1,6 @@
 ### j_hudv2 
 
-![](https://ptb.discord.com/channels/984667714968772628/986017781864628254/991143497044348928)
+![](https://img001.prntscr.com/file/img001/r3tEIb5QSK6cmyh2zvU4Mg.png)
 
 
 ### Get Started
